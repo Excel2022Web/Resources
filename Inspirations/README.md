@@ -1,0 +1,11 @@
+### https://mozohack.srmkzilla.net/ 
+### https://www.pola.com/wecaremore/ 
+### https://dogstudio.co/ 
+### https://www.moooi.com/en/a-life-extraordinary
+### https://webflow.com/web-design-art-history 
+### https://codepen.io/yahiarefaiea/pen/xyNWQq
+### https://icons8.com/articles/landing-page-hero-illustration/
+### https://www.firewatchgame.com/
+### https://the-goonies.webflow.io/
+### https://browserhistory.squarespace.com/ziwe-fumudoh
+### https://www.niika.com.au/
